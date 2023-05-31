@@ -1,1 +1,0 @@
-# screenshots_flathub
